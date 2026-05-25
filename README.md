@@ -1,46 +1,33 @@
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/6246d90d8e8b995a7a913bee98847c60/6907fb039a742f24-03/s2048x3072/c6a3c99a0c1f512ccdcdd95f803e0d07a44bba5b.pnj" />
+  <img src="https://64.media.tumblr.com/aa4e3e55ddf2ea5ea84f055c7d0fdcfe/046f55aff84d5b81-d2/s2048x3072/09d9ce7b4155293830e64f3ea316d9c35b3cfb76.pnj" />
 
-<p align="center">
   <p align="center">
-  <img src="https://64.media.tumblr.com/97731e43f413864fdb593e53f426c6db/6840813172c138c3-3b/s1280x1920/5ddcf0d5464eae5d515a0cb49616302325cbc8ae.gifv" />
+  <img src="https://64.media.tumblr.com/171990b8a9e8fb2a0fa646237b4c3b0c/39769b92cd198262-89/s2048x3072/49634786a6f476c09ea652a15d88636b19ad5e95.pnj"/>
 <p align="center">
- hi im Lim!! or Robbie or Oscar whatevr 
-</p>
+  $\color{#7c45c4}{hi~im~Lim!!~or~Robbie~or~Oscar~whatrvrr}$
 
-<p align="center">
- i go by he / it wooow 
 
 <p align="center">
- i am transmasc and pansexual
+  $\color{#7c45c4}{i~go~by~he~/~it~wooow}$
 
-
-<p align="center"> sour strawberry 5 ever !!!
-
- <p align="center"> <img src="https://i.pinimg.com/736x/bf/de/86/bfde86be8a049f8e4cc614f7ec0ab7a4.jpg" />
 <p align="center">
-    <p align="center"> i love you Edgar 
-       <p align="center">  ^______________________^
+$\color{#7c45c4}{i~am~transmasc~check~prons~page~4~more}$
+
+<p/>
+<p align="center">
+    $\color{#7c45c4}{THE~~Edgar~yumeshipper.♡}$
+
+ <p align="center"> <img src="https://64.media.tumblr.com/5af93ef5ca221ee56a81d36582b86eb4/9c1741567063cecb-70/s1280x1920/a1373fe74979a5097a75357d8a6ddb7d290cbeb1.pnj" />
+<p align="center">
+    <p align="center"> $\color{#7c45c4}{i~love~all~of~my~friends<3}$
+       <p align="center">  $\color{#7c45c4}{-3-}$
   </p> 
 ⠀<p align="center"> <a href=https://scarypuplim.atabook.org/>ATA ^_^</a> ⠀<p align="center"> <a href=https://www.omfgdogs.com/>dawgs.. </a>
 
-   <p align="center"> ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ
+   <p align="center">  $\color{#7c45c4}{ᴍᴏꜱᴛʟʏ~ᴏꜰꜰᴛᴀʙ}$
   </p>
  <p align="center">
-     <img src="https://64.media.tumblr.com/97731e43f413864fdb593e53f426c6db/6840813172c138c3-3b/s1280x1920/5ddcf0d5464eae5d515a0cb49616302325cbc8ae.gifv" />
-      <img src="https://64.media.tumblr.com/6246d90d8e8b995a7a913bee98847c60/6907fb039a742f24-03/s2048x3072/c6a3c99a0c1f512ccdcdd95f803e0d07a44bba5b.pnj" />
+      <img src="https://64.media.tumblr.com/171990b8a9e8fb2a0fa646237b4c3b0c/39769b92cd198262-89/s2048x3072/49634786a6f476c09ea652a15d88636b19ad5e95.pnj"/>
 <p align="center">
-
-<p align="center">
-
-
-<p align="center">
-
-
-<p align="center">
-
-<p align="center">
-also shout out to my friends they are all so awesome i love you guys
- <img src="https://i.pinimg.com/1200x/6f/78/9e/6f789e235a1bdc1f521e565b29f45779.jpg" />
- <img src="https://64.media.tumblr.com/ee2cebc5d8824774389041bddd478fe4/26aa773e7989bf3f-bf/s2048x3072/228c46f4f9b90bf0826515b94570d28634042576.gifv" />
+  <img src="https://64.media.tumblr.com/aa4e3e55ddf2ea5ea84f055c7d0fdcfe/046f55aff84d5b81-d2/s2048x3072/09d9ce7b4155293830e64f3ea316d9c35b3cfb76.pnj" />
