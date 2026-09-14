@@ -34,4 +34,8 @@ $\color{#F12017}{i~am~transmasc~check~prons~page~4~more}$
    </p> 
 ⠀<p align="center"> <a href=https://scarypuplim.atabook.org/>ATA ^_^</a> ⠀<p align="center"> <a href=https://www.omfgdogs.com/>dawgs.. </a>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t262wqz4xurpovvih2pdhjsue4&cover_image=true&theme=default&show_offline=false&background_color=672323&interchange=false&profanity=false&hide_remaster=false&bar_color=c22424&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t262wqz4xurpovvih2pdhjsue4&cover_image=true&theme=default&show_offline=true&background_color=672323&interchange=false&profanity=false&hide_remaster=false&bar_color=c22424&bar_color_cover=true">
+  </a>
+</p>
