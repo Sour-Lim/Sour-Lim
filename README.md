@@ -5,7 +5,7 @@
   <p align="center">
   <img src="https://64.media.tumblr.com/f69f526a8555ce059c535434082866ba/1bb2172f2bdd32c7-0e/s2048x3072/578a70753cfc0f446f94f79a393a7671dd054ead.pnj"/>
 <p align="center">
-  $\color{#800b00}{hi~im~Lim!!~or~Aplaz~or~Oscar~whatrvrr}$
+  $\color{#800b00}{hi~im~Lim!!~or~Eddie~or~whatrvrr}$
 
 
 <p align="center">
