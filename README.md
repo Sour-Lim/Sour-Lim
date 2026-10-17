@@ -12,7 +12,7 @@
   $\color{#b0390d}{i~go~by~they~/~any~if~close~}$
 
 <p align="center">
-$\color{#800b00}{i~am~transmasc~check~prons~page~4~more}$
+$\color{#800b00}{i~am~enby~check~prons~page~4~more}$
 
 <p/>
 <p align="center">
