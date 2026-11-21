@@ -1,36 +1,36 @@
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/1e46234f7b7a934bd2644a514531ed5e/da2c623ffe3372ec-e1/s2048x3072/7762a8ca30930541195645c1144d43f04efb4c58.pnj" />
+  <img src="https://64.media.tumblr.com/82c81b3912c5a4e9c86747136692fc32/b40954b03ede66ef-92/s1280x1920/7cfe542c1c3ee3919118254bd6464fd48c3da3ad.pnj" />
 
   <p align="center">
-  <img src="https://64.media.tumblr.com/f69f526a8555ce059c535434082866ba/1bb2172f2bdd32c7-0e/s2048x3072/578a70753cfc0f446f94f79a393a7671dd054ead.pnj"/>
+  <img src="https://64.media.tumblr.com/b28e12227190d5a4496806703e313554/dc11f5d828beb3ce-5f/s1280x1920/25cc703a018b1fcb19100df192ff6ced086371f2.pnj"/>
 <p align="center">
-  $\color{#800b00}{hi~im~Lim!!~or~Eddie~or~whatrvrr}$
+  $\color{#b91c13}{hi~im~Lim!!~or~Eddie~or~whatrvrr}$
 
 
 <p align="center">
-  $\color{#b0390d}{i~go~by~they~/~any~if~close~}$
+  $\color{#7a0014}{i~go~by~they~/~any~if~close~}$
 
 <p align="center">
-$\color{#800b00}{i~am~enby~check~prons~page~4~more}$
+$\color{#b91c13}{i~am~enby~check~prons~page~4~more}$
 
 <p/>
 <p align="center">
-    $\color{#b0390d}{THE~~Edgar~yumeshipper.♡}$
+    $\color{#7a0014}{THE~~Edgar~yumeshipper.♡}$
 
- <p align="center"> <img src="https://64.media.tumblr.com/cf47c22bdef17c617ed9ad82f9b45182/9ca3aee99e2b55bc-5e/s1280x1920/00546514f381c9df10d18caf374288204d451e9a.pnj" />
+ <p align="center"> <img src="https://64.media.tumblr.com/468871580274cf221103a60960a8357c/7fa80794fc23f3a2-17/s400x600/3b37b7095f8b9c2943696172831f22869ec906c9.pnj" />
 <p align="center">
-    <p align="center"> $\color{#800b00}{i~love~all~of~my~friends}$
-       <p align="center">  $\color{#b0390d}{-3-}$
+    <p align="center"> $\color{#b91c13}{i~love~all~of~my~friends}$
+       <p align="center">  $\color{#7a0014}{-3-}$
  
 
   
   </p>
  <p align="center">
-      <img src="https://64.media.tumblr.com/f69f526a8555ce059c535434082866ba/1bb2172f2bdd32c7-0e/s2048x3072/578a70753cfc0f446f94f79a393a7671dd054ead.pnj"/>
+      <img src="https://64.media.tumblr.com/b28e12227190d5a4496806703e313554/dc11f5d828beb3ce-5f/s1280x1920/25cc703a018b1fcb19100df192ff6ced086371f2.pnj"/>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/1e46234f7b7a934bd2644a514531ed5e/da2c623ffe3372ec-e1/s2048x3072/7762a8ca30930541195645c1144d43f04efb4c58.pnj" />
+  <img src="https://64.media.tumblr.com/82c81b3912c5a4e9c86747136692fc32/b40954b03ede66ef-92/s1280x1920/7cfe542c1c3ee3919118254bd6464fd48c3da3ad.pnj" />
    </p> 
 ⠀<p align="center"> <a href=https://scarypuplim.atabook.org/>ATA ^_^</a> ⠀<p align="center"> <a href=https://www.omfgdogs.com/>dawgs.. </a>
 
